@@ -26,4 +26,4 @@ I use AI tools every day, for code as well as visuals, and I direct them. I art-
 - Portfolio: https://www.karankamboj.com/
 - Instagram: https://www.instagram.com/justkarank
 - LinkedIn: https://www.linkedin.com/in/karan-kamboj-b17386448/
-- Email: karan.kamboj1612@gmail.com
+- Email: hello@karankamboj.com
